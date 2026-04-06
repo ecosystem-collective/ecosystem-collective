@@ -24,9 +24,7 @@ ______________________________
 <h1>"WHAT AM I GONNA DO IN A SUBMARINE ???"</h1>
 
 
-<p>ILY SIBLINGS, < WYLDIE AND LALOYD 3 !!</p>
-
-<p>main names: <b>AME, KAI, LEVI.</b></p>
+<p>main name: <b>AME.</b></p>
 
 <p><img src="https://i.pinimg.com/originals/6f/58/96/6f58966a9aebdbd834646ee93b57dc36.gif" alt="Computer man" style="width:1080px;height:1080x;"></p>
 <h6>skylor chen give me a chance... please..</ph6>
