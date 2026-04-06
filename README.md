@@ -14,6 +14,7 @@
 <p><u>CULA {SPOOKIZ}</u></p>
 <p><u>MARS {SB/SH}</u></p>
 <p><u>NAPOLEON IN GENERAL.</u></p>
+<p>ETC</p>
     <p><img width="1280" height="674" alt="image" src="https://github.com/user-attachments/assets/6f4bf3a5-3521-45d7-9b4f-ec8bd2852e92" /></p>
 <h1><u>DNIIII</u></h1>
 <p>KIN DOUBLES DNI !! AT ALL ||||| IF U KNOW I DISLIKE//AVOID U ||||| basic criteria ||||| G*RMANY :[ ((JOKINGLY!.. maybe /j))</p>
