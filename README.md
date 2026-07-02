@@ -1,9 +1,8 @@
 <!DOCTYPE html>
 <html>
 <head>
-    <center><title>1nf0</title>
 </head>
-<span style="color:#B800FF;"><u><h1>⠀1NF0RM4T10N⠀</h1></u>
+<center><span style="color:#B800FF;"><u><h1>⠀1NF0RM4T10N⠀</h1></u>
    <p>haihai, we r da ecosystem...[collective].</p>
 <p>C+H is much highly encouraged !! aswell as wanting to befriend us!<p>
 <p>UHH-,, it is recommended to check out SP, as some things are not mentioned here?-</p></span>
