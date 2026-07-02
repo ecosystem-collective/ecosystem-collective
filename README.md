@@ -17,5 +17,5 @@ UHH-,, it is recommended to check out SP, as some things are not mentioned here?
 </p>
 
 <p align="center">
-<img src="YOUR_IMAGE_URL" width="300">
+<img src="https://media.discordapp.net/attachments/1300885001247916043/1522045987957506128/Untitled4_20260702030457.png?ex=6a470b49&is=6a45b9c9&hm=67c3b7c03ddd6b2bd7829a965f876f61cb003706d69885a6a5aa50151704b47e&=&format=webp&quality=lossless&width=794&height=794">
 </p>
