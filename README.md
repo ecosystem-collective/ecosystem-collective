@@ -1,10 +1,13 @@
 <!DOCTYPE html>
 <html>
 <head>
+    <center><title>1nf0</title>
 </head>
-<body>
-<img src="https://i.pinimg.com/736x/55/0e/ad/550ead6c8bc5326cc6fef3a0c15634d8.jpg" alt="image">
-<img src="https://i.pinimg.com/736x/8f/ea/9c/8fea9c95c45d1e58ca5bafcafae76dc8.jpg">
-<img src="https://i.pinimg.com/736x/ef/7f/38/ef7f38ee09ec8eea44823137d1fce252.jpg">
+<span style="color:#B800FF;"><u><h1>⠀1NF0RM4T10N⠀</h1></u>
+   <p>haihai, we r da ecosystem...[collective].</p>
+<p>C+H is much highly encouraged !! aswell as wanting to befriend us!<p>
+<p>UHH-,, it is recommended to check out SP, as some things are not mentioned here?-</p></span>
+<p>lastly... <span style="color: red;"><u><b>‼️DNI‼️</b></u></span> if you <i>KNOW</i> we dislike you <b>/</b> have you blocked.</p>
+<img src="https://media.discordapp.net/attachments/1300885001247916043/1522045987957506128/Untitled4_20260702030457.png?ex=6a470b49&is=6a45b9c9&hm=67c3b7c03ddd6b2bd7829a965f876f61cb003706d69885a6a5aa50151704b47e&=&format=webp&quality=lossless&width=794&height=794">
 </body>
 </html>
