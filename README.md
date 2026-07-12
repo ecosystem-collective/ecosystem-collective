@@ -4,7 +4,7 @@
 </head>
 <body>
 
-<h1 align="center"><u>　1NF0RM4T10N　</u></h1>
+<h1 align="center"><u>　1NF0RM4710N　</u></h1>
    
    <p align="center">haihai, we r da ecosystem...[collective].</p>
    
