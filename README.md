@@ -12,7 +12,9 @@
    
 <p align="center">UHH-,, it is recommended to check out SP, as some things are not mentioned here?-</p>
 
-<p align="center">lastly... <u><b>‼️DNI‼️</b></u> if you <i>KNOW</i> we dislike you <b>/</b> have you blocked<i><b>, and</b></i> if u're gonna be rude/mean to any of us</p>
+<p align="center">uh <u><b>‼️DNI‼️</b></u> if you <i>KNOW</i> we dislike you <b>/</b> have you blocked<i><b>, and</b></i> if u're gonna be rude/mean to any of us</p>
+
+<p align="center">DISC;　_rifle_　!</p>
 
 <p align="center"><b>PFP NOT OURS, OK? OK!</b></p>
 
