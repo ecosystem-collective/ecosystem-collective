@@ -12,7 +12,7 @@
    
 <p align="center">It is recommended to check out SP, as some things are not mentioned here.</p>
 
-<p align="center">DNI if you're someone we disliked/have blocked.</p>
+<p align="center">DNI if you're someone we dislike/have blocked.</p>
 
 <p align="center">DNI if you're gonna be hateful.</p>
 
