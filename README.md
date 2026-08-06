@@ -6,7 +6,7 @@
 
 <h1 align="center"><u>　1NF0RM4710N　</u></h1>
    
-   <p align="center">We are the Ecosystem.</p>
+   <p align="center">We are the Ecosystem. [[Egosystem for funsies.</p>
    
 <p align="center">C+H is highly encouraged, as well as wanting to befriend us!</p>
    
